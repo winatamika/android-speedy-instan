@@ -1,4 +1,4 @@
 # android-speedy-instan
 
 
-hello this is readme file ~ 
+SpeedyInstan,speedy instan,wifi corner, wifi, telkom, wifi id ~ 
